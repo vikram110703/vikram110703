@@ -3,7 +3,7 @@
 
 - 💻I’m interested in **Web Development, DSA and Competitive Programming.**
 
-- 📫 How to reach me **sainivks4321@gmail.com**
+- 📫 You can mail me at **sainivks4321@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
